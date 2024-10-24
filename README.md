@@ -16,7 +16,7 @@ Ich kauf' dir Plastikblum'n, denn die halten für immer"**
 
 https://www.youtube.com/watch?v=ihquHtt6IcY 
 
-Dreh dein Bildschirm so, dass die Website horizontal ist;)
+Dreh dein Bildschirm so, dass die Website horizontal ist ;)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣀⠀⠀⠀⣀⣀⣀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⢀⣀⣀⢠⠿⠷⣭⣶⣯⣥⣶⣾⣿⠀⠀⠀⠀⢠⠖⣒⡒⢢⣄⡴⠒⢢⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
