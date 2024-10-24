@@ -1,6 +1,7 @@
 # Amelie ich liebe dich
 ### Danke das ich dein Freund seien darf.
-Danke für unsere Zunkft, für die Eisbären, und das du mich liebst.
+
+*An meine Maus: *Danke für unsere Zunkft, für die Eisbären, und das du mich liebst.
 Schatz ich werde immer für dich da seien, un dich immer lieben. 
 Unser Leben wird Perfekt, da bin ich mir sicher, weil ich werde dich
 haben und das ist alles was ich brauche. Oder in Chapos worten:
@@ -65,3 +66,5 @@ https://www.youtube.com/watch?v=ihquHtt6IcY
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠚⠋⠀⠀⠀⠈⢸⠀⠀⢹⠀⢣⢀⡀⠤⠒⠊⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠉⠁⢸⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢸⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
+-- Dein Bär
