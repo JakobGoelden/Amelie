@@ -2,7 +2,7 @@
 ### Danke das ich dein Freund seien darf.
 
 *An meine Maus:* Danke für unsere Zunkft, für die Eisbären, und das du mich liebst.
-Du bist das beste was mir jemals passiert ist. So Hübsch so schlau so nett und die perfekte Freundin und Partnerin.
+Du bist die Liebe meines Lebens, meine Freundin und das beste was mir jemals passiert ist. So Hübsch so schlau so nett und die perfekte Freundin und Partnerin.
 Schatz ich werde immer für dich da seien, un dich immer lieben. 
 Unser Leben wird Perfekt, da bin ich mir sicher, weil ich werde dich
 haben und das ist alles was ich brauche. Oder in Chapos worten:
